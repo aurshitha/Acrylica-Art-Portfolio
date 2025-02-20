@@ -1,2 +1,2 @@
 # Acrylica-Art-Portfolio
- A modern and sleek name inspired by acrylics.
+ A modern and sleek Website inspired by acrylics.
